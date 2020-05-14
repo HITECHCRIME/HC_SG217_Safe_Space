@@ -29,12 +29,14 @@ it's my space bitch, it's my space
 
 know i'm gonna clear it see the reaper in my face 
 you so fearful of the freedom of decisions they a maze
+
 fallen patterns tread in errant sinage
 fucking furious conduits of violence
 hide it hide it bitch
+
 you ain't right you ain't right for me
 
-coz i let tread i let them go it too far 
+coz i let you tread too thin i let them go it too far 
 so in the past 
 so sure of the 
  subduing mood
